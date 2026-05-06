@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with brainrot evolution Script new, the #1 Script. Includes infinite resources and no cooldown for
 
 
 
